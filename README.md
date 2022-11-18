@@ -16,6 +16,6 @@ I'm an Engineer with detail oriented, responsible, with a get-it-done, on-time, 
 
 😄 Fun fact: I love Coding(💻) and Traveling(🌍).
 
-👨‍💻 Hire me for Entry level jobs: https://www.linkedin.com/skill-assessments/Python%20(Programming%20Language)/report/.
+👨‍💻 Hire me for Entry level jobs: To step up.
 
 💪🏼 Future Goals: Learn more technologies - Never stop creating new ideas.
