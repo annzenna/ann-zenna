@@ -12,7 +12,7 @@ I'm an Engineer with detail oriented, responsible, with a get-it-done, on-time, 
 
 💬 Ask me about anything: Here.
 
-📫 How to reach me: Catch and follow me from the above links 👆.
+📫 How to reach me: Catch and follow me in link https://www.linkedin.com/in/ann-zenna/.
 
 😄 Fun fact: I love Coding(💻) and Traveling(🌍).
 
